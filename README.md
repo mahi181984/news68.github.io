@@ -1,1 +1,1 @@
-# news68.github.io
+# NEWS MAKES EASY
